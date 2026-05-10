@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://Trueatravage91.github.io/ultimate-mining-ty-wd58/) |
  |---------------------|----------------------:|
 
 
