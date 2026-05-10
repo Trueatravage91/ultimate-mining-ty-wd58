@@ -1,4 +1,4 @@
-
+Experience ultimate mining tycoon like never before with ultimate mining tycoon Scripts elite, the #1 Script. Includes one-hit kill and aimbot for
 
 
 
